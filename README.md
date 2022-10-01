@@ -17,10 +17,10 @@ Here are some ideas to get you started:
 
 My name is Nicole Zhao :)
 
-I am a sophomore studying CBE,  
+I am a sophomore studying CBE  
 
-current interests are headphones and classical music, 
+Current interests are headphones and classical music 
 
-I have an obsession with all four of Chopin's Ballades (don't make me pick a favorite),
+I have an obsession with all four of Chopin's Ballades (don't make me pick a favorite)
 
-hobbies include reading, playing and watching basketball, drinking tea
+Hobbies include reading, playing and watching basketball, drinking tea
