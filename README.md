@@ -16,7 +16,11 @@ Here are some ideas to get you started:
 -->
 
 My name is Nicole Zhao :)
-I am a sophomore studying CBE 
-Current interests are headphones and classical music
-Obsession: all four of Chopin's Ballades (don't make me pick a favorite)
-Hobbies include reading, playing and watching basketball, drinking tea
+
+I am a sophomore studying CBE,  
+
+current interests are headphones and classical music, 
+
+I have an obsession with all four of Chopin's Ballades (don't make me pick a favorite),
+
+hobbies include reading, playing and watching basketball, drinking tea
