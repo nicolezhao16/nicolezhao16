@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+My name is Nicole Zhao :)
+I am a sophomore studying CBE 
+Current interests are headphones and classical music
+Obsession: all four of Chopin's Ballades (don't make me pick a favorite)
+Hobbies include reading, playing and watching basketball, drinking tea
